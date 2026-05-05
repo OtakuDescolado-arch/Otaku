@@ -1,2 +1,4 @@
-# Otaku
-LIGA MY HERO ACADEMY
+Seja bem vindo a nossa liga 
+
+
+
